@@ -1,6 +1,6 @@
 💯 100% community-driven token
 
-🐶 Inspired by Shiba Inu, Saitama Inu and Dogecoin
+🐶 Inspired by Shiba Inu, PEPE and Dogecoin
 
 💸 Less Supply & Fair Launch
 
